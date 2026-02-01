@@ -1,5 +1,5 @@
 ## Hi ,This is Jyothi👋
-🎓 B.E CSE Student | 💻 Aspiring Software Engineer  
+🎓 B.E CSE Student
 📍 India  
 ---
 ## 👩‍💻 About Me
