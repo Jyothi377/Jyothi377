@@ -32,7 +32,7 @@
 
 ## 📫 Connect With Me
 
-- 📧 Email:jyothiyelakanti@gmail.com
+- 📧 **Email:** [jyothiyelakanti@gmail.com](mailto:jyothiyelakanti@gmail.com)
 
 
 ---
